@@ -1,5 +1,5 @@
 
 # Mukul Dhiman
-**Bla Bla**
+**Computational and Theoretical Physicist**
 
 📍 France  
